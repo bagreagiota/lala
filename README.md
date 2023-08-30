@@ -1,3 +1,3 @@
 # lala
 
-Gabriel Cavalcanti n13
+Gabriel Cavalcanti n13 e Ryan 
